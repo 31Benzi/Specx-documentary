@@ -31,3 +31,4 @@ Burlone pushed the website "Abstract" and after 10-20 mins Specx send me an DM h
 User named "z" forworded a message to Specx where im showing ColtonsOGFN Center 
 html , css and js than he showed me how he has opened devtools in my website (benzi.tech) than i showed him how i have opened Dev tools in ColtonsOGFN center website than he banned me from Coltons OGFN Center" and posted accusations of me 
 
+This was in DM's outside Dms he was telling bad things about me trying to be e-gangster in Underground by abusing his role and this waa not happening only in this server
