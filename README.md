@@ -112,7 +112,7 @@ not true. We had been working on our website for **3 months**.
 
 He responded with:
 
-> "3 months? We spent 1 day ð­ L"
+> "3 months? We spent 1 day 😭L"
 
 After that, I added him to a group chat with **Burlone, Colton, and
 Vaze**.
