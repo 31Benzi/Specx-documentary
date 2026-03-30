@@ -11,7 +11,7 @@ this situation**, and I want to document what happened.
 
 ## 08/09/2025
 
-I messaged him and asked if he made the **Rewind Launcher**. He told me
+I messaged him and asked if he made part of the **Rewind Launcher**. He told me
 that he did, and at first I believed him.
 
 At that time, I was showing him some of my skidded work and asking
