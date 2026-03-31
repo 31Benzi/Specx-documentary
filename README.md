@@ -131,8 +131,6 @@ Underground server by abusing his role.
 
 ---
 
-# Response
+# About Specx
 
-Because of the accusations made against me by Specx, I created this repository to document the situation and provide evidence.
-
-If the accusations are not removed, I will continue publishing additional proof and screenshots here so people can see the full context.
+At first i didnt want to dox him but than he told me "dox me pussy i dare you" soooooo if he want i will do it 
