@@ -156,34 +156,13 @@ created: 2019-01-26T15:03:34.117Z
 ## Log In info
 Username: joshua_daboii
 
-Password: Hargun12
+Password: Ha****12
 
 Log ID: 0d3e64653e5f96e56893306fdb0f2ace60fec1c47948dd7ebce03f326026a290
 ## CP expose
 ![Evidence 1](https://github.com/31Benzi/Specx-dooxed/blob/main/Specx/cp.png)
 
-# Internet
-## Info
-I will be good, and I will not leak it
-Email
-y*****612@gmail.com 
-Password
-H****12
 
-Btw, has 7 more emails if I remember correctly
-
-## Roblox
-Display Name
-Specx
-Username
-Joshua_DaBoii
-ID
-944653162
-Account Made 
-Jan 26, 2019
-
-Past Username
-VIPhoney678954
 
 
 
