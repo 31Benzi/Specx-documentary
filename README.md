@@ -136,13 +136,15 @@ Underground server by abusing his role.
 # Real-life info
 Name: Joshua
 
-Lives: in the UK, London, or Bournemouth
+Lives: in the UK, Bournemouth
 
 Years: 14
 
 IP: 2.222.62.76
 
 Born Date 24.06
+
+When he uses a VPN, most of the time, he is connecting to France
 
 # Roblox
 user_id: 944653162
