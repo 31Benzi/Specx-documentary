@@ -62,7 +62,7 @@ He again asked for the **Developer role**.
 
 After that, I sent him an expose message.
 
-** ALL MAIN CREDITS TO KAZU FOR THIS"
+### ALL MAIN CREDITS TO KAZU FOR THIS
 
 ![Evidence 1](https://github.com/31Benzi/Specx-dooxed/blob/main/Specx/IMG_7178.jpeg)
 
