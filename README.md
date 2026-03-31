@@ -72,9 +72,9 @@ After that, I sent him an expose message.
 
 ### ALL MAIN CREDITS TO KAZU FOR THIS
 
-![Evidence 1](https://github.com/31Benzi/Specx-dooxed/blob/main/Specx/IMG_7178.jpeg)
+![Evidence 1](https://github.com/31Benzi/Specx-documentary/blob/main/Specx/IMG_7178.jpeg)
 
-![Evidence 2](https://github.com/31Benzi/Specx-dooxed/blob/main/Specx/image.png)
+![Evidence 2](https://github.com/31Benzi/Specx-documentary/blob/main/Specx/image.png)
 
 After I sent this, he claimed it was fake because **"Kazu hates me."**
 
@@ -170,7 +170,7 @@ Password: Ha****12 (I will not leak it if he removes accusations and fake things
 
 Log ID: 0d3e64653e5f96e56893306fdb0f2ace60fec1c47948dd7ebce03f326026a290
 ## CP expose
-![Evidence 1](https://github.com/31Benzi/Specx-dooxed/blob/main/Specx/cp.png)
+![Evidence 1](https://github.com/31Benzi/Specx-documentary/blob/main/Specx/cp.png)
 
 
 
