@@ -62,19 +62,19 @@ He again asked for the **Developer role**.
 
 After that, I sent him an expose message.
 
-Credits for the evidence go to **Kazu**:
+** ALL MAIN CREDITS TO KAZU FOR THIS"
+> Dear OryxMP  
+> Please watch out for people like this.  
+> He tried getting unbanned in a project by sending **fake PayPal receipts of payment**.  
+> In the screenshot if you inspect it fully you can see it's made from a website which generates fake receipts.  
+> Do not fall for these types of things.  
+> We know about it and you're going to get a bad reputation with this.  
+> You earned it yourself.  
+> Stay safe!
 
-> "Dear OryxMP\
-> Please watch out for people like this.\
-> He tried getting unbanned in a project by sending **fake PayPal
-> payment receipts**.\
-> If you inspect the screenshot carefully, you can see it was generated
-> from a **fake receipt website**.\
-> Do not fall for these types of things.\
-> We are aware of it, and you are going to build a bad reputation for
-> yourself.\
-> You earned it yourself.\
-> Stay safe."
+![Evidence 1](https://github.com/31Benzi/Specx-dooxed/blob/main/Specx/IMG_7178.jpeg)
+
+![Evidence 2](https://github.com/31Benzi/Specx-dooxed/blob/main/Specx/image.png)
 
 After I sent this, he claimed it was fake because **"Kazu hates me."**
 
