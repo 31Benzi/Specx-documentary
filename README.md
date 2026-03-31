@@ -166,7 +166,7 @@ created: 2019-01-26T15:03:34.117Z
 ## Log In info
 Username: joshua_daboii
 
-Password: Ha****12 (I will not leak it if he removes accusations and fake things about me, btw, changing password will not save you)
+Password: Ha****12 (I will not leak it if he removes accusations and fake things about me apologises to me and btw changing the password will not save you)
 
 Log ID: 0d3e64653e5f96e56893306fdb0f2ace60fec1c47948dd7ebce03f326026a290
 ## CP expose
