@@ -142,4 +142,28 @@ Years old:14
 
 ## CP expose
 
-## More exposes
+# Internet
+## Info
+I will be good, and I will not leak it
+Email
+y*****612@gmail.com 
+Password
+H****12
+
+Btw, has 7 more emails if I remember correctly
+
+## Roblox
+Display Name
+Specx
+Username
+Joshua_DaBoii
+ID
+944653162
+Account Made 
+Jan 26, 2019
+
+Past Username
+VIPhoney678954
+
+
+
