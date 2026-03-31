@@ -8,7 +8,7 @@ This situation**, and I want to document what happened. They are accusing me of:
 ### 1. Selling Skidded Websites/Bots
 My Answer: When you start saying something that is not correct, use your brain to figure out how I can skid a website/bot that the client wants me to do, from where I will take the source, and they want custom commands.
 ### 2. Coping "haunt.gg"
-My website benzi.tech is made for me; it's not made for anyone else to use it, and the user who made haunt.gg (he knows who is) you are dumb ass, coping "guns.lol" not me 
+My website benzi.tech is made for me; it's not made for anyone else to use it, and the user who made haunt.gg (he knows who is) you are dumb ass, coping "guns.lol" and next time encrypt your DB better
 ### 3. Talking About Abstract
 No one has Dmed Burlone or me that "it contains so much lag and non-visual appealing animations and features, and alignments with things are not accurate based on any content. "
 And if someone has lag, they can enable "Performance Mode."
