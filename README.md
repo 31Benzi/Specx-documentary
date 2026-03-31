@@ -133,13 +133,32 @@ Underground server by abusing his role.
 
 # About Specx
 
-## Personal info
+# Real-life info
 Name: Joshua
 
-Lives: UK , London
+Lives: in the UK, London, or Bournemouth
 
-Years old:14
+Years: 14
 
+IP: 2.222.62.76
+
+Born Date 24.06
+
+# Roblox
+user_id: 944653162
+
+username: Joshua_DaBoii
+
+display_name: Specx
+
+created: 2019-01-26T15:03:34.117Z
+
+## Log In info
+Username: joshua_daboii
+
+Password: Hargun12
+
+Log ID: 0d3e64653e5f96e56893306fdb0f2ace60fec1c47948dd7ebce03f326026a290
 ## CP expose
 ![Evidence 1](https://github.com/31Benzi/Specx-dooxed/blob/main/Specx/cp.png)
 
