@@ -128,3 +128,11 @@ accusations about me.
 Most of this happened in **DMs**, but outside of DMs he was also
 **talking badly about me**, trying to act like an **e-gangster** in the
 Underground server by abusing his role.
+
+---
+
+# Response
+
+Because of the accusations made against me by Specx, I created this repository to document the situation and provide evidence.
+
+If the accusations are not removed, I will continue publishing additional proof and screenshots here so people can see the full context.
