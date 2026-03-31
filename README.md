@@ -133,4 +133,11 @@ Underground server by abusing his role.
 
 # About Specx
 
-At first i didnt want to dox him but than he told me "dox me pussy i dare you" soooooo if he want i will do it 
+## Personal info
+Name: Joshua
+
+Lives: UK , London
+
+Years old:14
+
+# CP expose
