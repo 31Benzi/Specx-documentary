@@ -172,6 +172,9 @@ Log ID: 0d3e64653e5f96e56893306fdb0f2ace60fec1c47948dd7ebce03f326026a290
 ## CP expose
 ![Evidence 1](https://github.com/31Benzi/Specx-documentary/blob/main/Specx/cp.png)
 
+## Last message
+Specx, I have the cookies for all ur logins
+
 
 
 
