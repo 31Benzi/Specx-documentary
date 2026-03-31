@@ -141,6 +141,7 @@ Lives: UK , London
 Years old:14
 
 ## CP expose
+![Evidence 1](https://github.com/31Benzi/Specx-dooxed/blob/main/Specx/cp.png)
 
 # Internet
 ## Info
